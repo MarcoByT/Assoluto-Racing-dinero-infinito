@@ -1,2 +1,6 @@
-# Assoluto-Racing-dinero-infinito
-Assoluto Racing dinero infinito
+# Assoluto Racing dinero infinito
+## Generador de dinero infinito para Assoluto Racing. Funciona en todos los dispositivos Android e iOS. No requiere permisos de root, jailbreak ni otros mods. Fácil de usar y completamente indetectable.
+
+## [DESCARGAR GENERADOR](https://stellardownload.pro/cl/i/g68gjp)
+
+
